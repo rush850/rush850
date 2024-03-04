@@ -1,4 +1,4 @@
-- I’m @rush850 ..
+- I’m @rush850 .
 - calm 
 - 
 
